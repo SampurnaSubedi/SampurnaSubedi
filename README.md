@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SampurnaSubedi
 - 👀 I’m interested in outdoor activities
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on adrian poetelli.  
+- 💞️ I’m looking to collaborate on adrian portelli.  
 - 📫 How to reach me : email me on sampurnasubedi64@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: I love coding but I don't know
